@@ -9,3 +9,5 @@ copy copy-change
 isme style change hoga wo dekh sakte ho new tab kar ke
 koi dikkat hoga to mera whatsapp me message kar sakte ho
 wa.me/917631123638
+यदि ये समझ ना आये तो ये वीडियो देख लेना।
+https://youtu.be/Qju6fTojAUs
